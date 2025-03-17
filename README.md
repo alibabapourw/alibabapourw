@@ -5,7 +5,7 @@
 my instagram :
 https://www.instagram.com/alibabapourw?igsh=MTFvOXBzano2c3ZmeA==
 my telegram :
-https://t.me/alibabapourw
+http://telegram.me/alibabapourw
 <!---
 alibabapourw/alibabapourw is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
